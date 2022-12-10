@@ -11,7 +11,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1FUntYqZTcWARvz_oow3xeAmZg49dXT32/view?usp=share_link](https://drive.google.com/file/d/1FUntYqZTcWARvz_oow3xeAmZg49dXT32/view?usp=share_link)
 
-- ⚡ Fun fact **I Can Make People Smile**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
